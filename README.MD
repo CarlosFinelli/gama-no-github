@@ -1,0 +1,1 @@
+Até o momento o curso está sendo bastante interessante, estou gostando.
